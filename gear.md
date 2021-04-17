@@ -8,14 +8,17 @@
 - [clean/med](#cleanmed)
   - [wear](#wear)
 - [charging](#charging)
+- [autre equipment](#autre-equipment)
 
 ## carry
 1. backpack
+2. raincover
 
 ## sleep
 1. [tent](https://www.decathlon.fr/p/tente-de-trekking-autoportante-3-saisons-trek-900-grise-2-personnes/_/R-p-301558) €200
 2. [tent tarp base](https://www.decathlon.fr/p/tarp-de-trekking-2-saisons-trek-900-gris/_/R-p-305779?mc=8545743) €60
-   1. **cheaper alt** [ground sheet](https://www.decathlon.fr/p/tapis-de-sol-protection-tente-trek-100-500-2-personnes/_/R-p-324566?mc=8581937) €15
+   1. [matching tent](https://www.decathlon.fr/p/tapis-de-sol-ultralight-tente-trek-900-2-personnes-orange/_/R-p-305792?mc=8545730)
+   2. **cheaper alt** [ground sheet](https://www.decathlon.fr/p/tapis-de-sol-protection-tente-trek-100-500-2-personnes/_/R-p-324566?mc=8581937) €15
 3. [sleeping bag](https://www.decathlon.fr/p/sac-de-couchage-sarcophage-de-trekking-trek-900-0-c-duvet-plume-rouge-gris/_/R-p-309272?mc=8575975&c=GRIS&utm_campaign=3692918%3ANovo-Monde&utm_content=10&utm_medium=affiliation&utm_source=rakuten_national&utm_term=frnetwork) €160
 4. [slik liner](https://www.decathlon.fr/p/drap-de-sac-de-trekking-en-soie-blanc/_/R-p-323651?mc=8578334&c=BLANC) €35
 5. [mattress](https://www.snowleader.com/trail-scout-gray-THEA00204.html) €72
@@ -26,8 +29,10 @@
 ### cooking
 1. burner
 2. fuel
-3. pans
-4. spork
+3. cooking pot w/ cover
+4. spoon+fork
+5. eating bowl
+6. 
 
 ### perishables
 1. coffee powder
@@ -68,8 +73,10 @@ also at [decat](https://www.decathlon.fr/p/comprimes-purificateurs-eau-trekking-
 4. brush/paste
 5. insect repellent
 6. tic spray
-7. regulae med
-8. first aid basic
+7. regular med
+8. first aid basic 
+9. vaseline stick
+10. 
 
 ### wear
 1. 1 waterproof jacket - jackWolfskin
@@ -80,7 +87,7 @@ also at [decat](https://www.decathlon.fr/p/comprimes-purificateurs-eau-trekking-
 6. 1 [leggings](https://www.decathlon.co.uk/p/men-s-cardio-fitness-training-leggings-fleg-500-grey-print/_/R-p-306458?mc=8547455&c=BLACK) to sleep in. we've ordered another [set](https://www.decathlon.fr/p/collant-running-homme-respirant-kiprun-dry/_/R-p-145892?mc=8588431&c=NOIR)
 7. 2 t-shirts - current ones
 8. 2 underwear
-9.  2 pair socks
+9.  3 pair socks
 10. to sleep warm
     1.  1 cap
     2.  buff
@@ -89,3 +96,13 @@ also at [decat](https://www.decathlon.fr/p/comprimes-purificateurs-eau-trekking-
 long story short here - get a couple of spare battery packs.
 phone is 3700mAh ... for about €30 I'll get a 26-28K mAh pack
 
+## autre equipment
+1. garbage bag roll
+2. small toilet roll
+3. ligther/striker/matches
+4. vaseline cotton balls x10 - boxed
+5. torch + headlamp
+6. tent light (??- too heavy)
+7. knife
+8. leaderman
+9. 
