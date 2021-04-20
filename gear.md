@@ -95,14 +95,19 @@ also at [decat](https://www.decathlon.fr/p/comprimes-purificateurs-eau-trekking-
 ## charging
 long story short here - get a couple of spare battery packs.
 phone is 3700mAh ... for about €30 I'll get a 26-28K mAh pack
+[link 2 the anker i bought](https://127.0.0.3) 
 
 ## autre equipment
 1. garbage bag roll
 2. small toilet roll
-3. ligther/striker/matches
-4. vaseline cotton balls x10 - boxed
-5. torch + headlamp
-6. tent light (??- too heavy)
-7. knife
-8. leaderman
-9. 
+3. dig-a-hole (for u know wat) [link 2 the poopy trowel](https://127.0.0.6)
+4. ligther/striker/matches
+5. vaseline cotton balls x10 - boxed
+6. torch + headlamp
+7. tent light (??- too heavy)
+8. knife
+9. leaderman
+10. whistle
+11. cord role
+12. mallet
+13. 
