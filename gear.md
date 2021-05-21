@@ -110,4 +110,4 @@ phone is 3700mAh ... for about €30 I'll get a 26-28K mAh pack
 10. whistle
 11. cord role
 12. mallet
-13. 
+13. [and may be one day this one:  MRGG1000B-1A ](https://world.g-shock.com/mrg/)
