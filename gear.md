@@ -13,12 +13,15 @@
 ## carry
 1. backpack
 2. raincover
+3. [when 1 gets serious](https://www.decathlon.fr/p/sac-a-dos-de-trekking-en-montagne-homme-trek-900-symbium-90-10l-kaki/_/R-p-172309?mc=8492332&c=KAKI_VERT)
+4. [some accessories as well](https://www.decathlon.fr/p/2-housses-demi-lune-pour-sac-a-dos-trek-de-70-a-90l/_/R-p-179611?mc=8572590&c=VERT)
 
 ## sleep
 1. [tent](https://www.decathlon.fr/p/tente-de-trekking-autoportante-3-saisons-trek-900-grise-2-personnes/_/R-p-301558) €200
 2. [tent tarp base](https://www.decathlon.fr/p/tarp-de-trekking-2-saisons-trek-900-gris/_/R-p-305779?mc=8545743) €60
    1. [matching tent](https://www.decathlon.fr/p/tapis-de-sol-ultralight-tente-trek-900-2-personnes-orange/_/R-p-305792?mc=8545730)
    2. **cheaper alt** [ground sheet](https://www.decathlon.fr/p/tapis-de-sol-protection-tente-trek-100-500-2-personnes/_/R-p-324566?mc=8581937) €15
+   3. startpage for 'tent footprint lightweight' <- some good results including Polycryo or Tyvek material
 3. [sleeping bag](https://www.decathlon.fr/p/sac-de-couchage-sarcophage-de-trekking-trek-900-0-c-duvet-plume-rouge-gris/_/R-p-309272?mc=8575975&c=GRIS&utm_campaign=3692918%3ANovo-Monde&utm_content=10&utm_medium=affiliation&utm_source=rakuten_national&utm_term=frnetwork) €160
 4. [slik liner](https://www.decathlon.fr/p/drap-de-sac-de-trekking-en-soie-blanc/_/R-p-323651?mc=8578334&c=BLANC) €35
 5. [mattress](https://www.snowleader.com/trail-scout-gray-THEA00204.html) €72
@@ -111,3 +114,8 @@ phone is 3700mAh ... for about €30 I'll get a 26-28K mAh pack
 11. cord role
 12. mallet
 13. [and may be one day this one:  MRGG1000B-1A ](https://world.g-shock.com/mrg/)
+
+
+
+ref:
+https://www.greenbelly.co/pages/beginner-backpacking-tips
