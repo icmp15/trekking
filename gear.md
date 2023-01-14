@@ -114,7 +114,7 @@ phone is 3700mAh ... for about €30 I'll get a 26-28K mAh pack
 11. cord role
 12. mallet. [this](https://www.amazon.fr/gp/product/B07RLW2X9B/ref=ppx_yo_dt_b_asin_title_o01_s00?ie=UTF8&psc=1) one.
 13. [and may be one day this one:  MRGG1000B-1A ](https://world.g-shock.com/mrg/)
-14. have got [this](https://www.amazon.fr/Hodeacc-Tabouret-Portable-Pique-Nique-randonn%C3%A9e/dp/B088BBWWKW/ref=sr_1_9?__mk_fr_FR=%C3%85M%C3%85    %C5%BD%C3%95%C3%91&crid=Y252H5J0PLOZ&keywords=trekking%2Bstool&qid=1661243503&sprefix=trekking%2Bstool%2Caps%2C86&sr=8-9&th=1&psc=1) camping stool. Still need to try.
+14. have got [this](https://www.amazon.fr/Hodeacc-Tabouret-Portable-Pique-Nique-randonn%C3%A9e/dp/B088BBWWKW/ref=sr_1_9?__mk_fr_FR=%C3%85M%C3%85%C5%BD%C3%95%C3%91&crid=Y252H5J0PLOZ&keywords=trekking%2Bstool&qid=1661243503&sprefix=trekking%2Bstool%2Caps%2C86&sr=8-9&th=1&psc=1) camping stool. Still need to try.
 
 
 
