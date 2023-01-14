@@ -98,24 +98,26 @@ also at [decat](https://www.decathlon.fr/p/comprimes-purificateurs-eau-trekking-
 ## charging
 long story short here - get a couple of spare battery packs.
 phone is 3700mAh ... for about €30 I'll get a 26-28K mAh pack
-[link 2 the anker i bought](https://127.0.0.3) 
+[link 2 the anker i bought](https://www.amazon.fr/gp/product/B01JIWQPMW/ref=ppx_yo_dt_b_asin_title_o06_s01?ie=UTF8&psc=1) 
 
 ## autre equipment
 1. garbage bag roll
 2. small toilet roll
-3. dig-a-hole (for u know wat) [link 2 the poopy trowel](https://127.0.0.6)
+3. dig-a-hole (for u know wat) [link 2 the poopy trowel](https://www.amazon.fr/gp/product/B07YFFLCD8/ref=ppx_yo_dt_b_asin_title_o01_s01?ie=UTF8&psc=1)
 4. ligther/striker/matches
 5. vaseline cotton balls x10 - boxed
 6. torch + headlamp
-7. tent light (??- too heavy)
+7. tent light (??- too heavy) _survived w/o it. no need_
 8. knife
 9. leaderman
 10. whistle
 11. cord role
-12. mallet
+12. mallet. [this](https://www.amazon.fr/gp/product/B07RLW2X9B/ref=ppx_yo_dt_b_asin_title_o01_s00?ie=UTF8&psc=1) one.
 13. [and may be one day this one:  MRGG1000B-1A ](https://world.g-shock.com/mrg/)
+14. have got [this](https://www.amazon.fr/Hodeacc-Tabouret-Portable-Pique-Nique-randonn%C3%A9e/dp/B088BBWWKW/ref=sr_1_9?__mk_fr_FR=%C3%85M%C3%85    %C5%BD%C3%95%C3%91&crid=Y252H5J0PLOZ&keywords=trekking%2Bstool&qid=1661243503&sprefix=trekking%2Bstool%2Caps%2C86&sr=8-9&th=1&psc=1) camping stool. Still need to try.
 
 
 
 ref:
 https://www.greenbelly.co/pages/beginner-backpacking-tips
+Novo monde - big shout out. great articles: https://www.novo-monde.com/en/backpacking-guide-bivouac-wild-camp/ 
