@@ -83,15 +83,16 @@ also at [decat](https://www.decathlon.fr/p/comprimes-purificateurs-eau-trekking-
 
 ### wear
 1. 1 waterproof jacket - jackWolfskin
-2. ~~1 downjacket~~ (??)
-3. 1 warm base layer - current one (techeat - Uniclo)
-4. 1 regular base layer- current one
-5. 1 hiking pants - current one
-6. 1 [leggings](https://www.decathlon.co.uk/p/men-s-cardio-fitness-training-leggings-fleg-500-grey-print/_/R-p-306458?mc=8547455&c=BLACK) to sleep in. we've ordered another [set](https://www.decathlon.fr/p/collant-running-homme-respirant-kiprun-dry/_/R-p-145892?mc=8588431&c=NOIR)
-7. 2 t-shirts - current ones
-8. 2 underwear
-9.  3 pair socks
-10. to sleep warm
+2. waterproof + down joint [millet jacket](https://www.millet.com/uk_en/miv9168-0247-fitz-roy-3-in-1-jkt-m-men-black.html)
+3. ~~1 downjacket~~ (??)
+4. 1 warm base layer - current one (techeat - Uniclo)
+5. 1 regular base layer- current one
+6. 1 hiking pants - current one
+7. 1 [leggings](https://www.decathlon.co.uk/p/men-s-cardio-fitness-training-leggings-fleg-500-grey-print/_/R-p-306458?mc=8547455&c=BLACK) to sleep in. we've ordered another [set](https://www.decathlon.fr/p/collant-running-homme-respirant-kiprun-dry/_/R-p-145892?mc=8588431&c=NOIR)
+8. 2 t-shirts - current ones
+9. 2 underwear
+10.  3 pair socks
+11. to sleep warm
     1.  1 cap
     2.  buff
    
